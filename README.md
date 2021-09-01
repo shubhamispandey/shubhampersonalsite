@@ -1,3 +1,3 @@
 # shubhamcopiessian
 
-visit this site : https://shubhamtechnews.github.io/shubhampersonalsite/
+visit this site :  https://shubhamispandey.github.io/shubhampersonalsite/
